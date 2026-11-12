@@ -45,7 +45,7 @@ Remember me, though I have to say goodbye.
 - [x] Know the characters
 - [ ] Watch it again
 
-I love ==Coco==!
+I love Coco!
 
 Water: H~2~O
 
