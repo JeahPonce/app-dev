@@ -22,8 +22,8 @@ I like Coco because it is colorful and heartwarming. I also like the music and f
 ## Favorite Movies
 
 1. Coco
-2. Coco 2 (conceptual)
-3. Coco 3 (conceptual)
+2. Soul
+3. The Book of Life
 
 ## Favorite Quote
 
